@@ -16,7 +16,7 @@
 
 ⛏️ [Minecraft](https://eaglercraft.com/)  
 
-🔍 [Unblocked Google](https://www.startpage.com/)  
+🔍 [Unblocked Google](https://www.google.com/)  
 
 🎲 [Poki](https://poki.com/)  
 
